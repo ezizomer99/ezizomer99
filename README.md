@@ -1,4 +1,4 @@
-## Hey, I'm Eziz.
+## Hey, I'm Eziz 🍵.
 
 ### Get In Touch
 <a href="mailto:ezizomer1999@gmail.com"><img src="https://img.shields.io/badge/-Gmail-red"></a> 
